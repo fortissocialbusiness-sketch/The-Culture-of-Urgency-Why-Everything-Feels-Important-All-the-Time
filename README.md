@@ -1,0 +1,2 @@
+# The-Culture-of-Urgency-Why-Everything-Feels-Important-All-the-Time
+Every email feels urgent. Every notification demands attention. Every task comes with a deadline. As organizations become faster and more connected, many teams find themselves working in a constant state of reaction rather than intention. Over time, this culture of urgency can affect productivity, decision-making, and overall workplace well-being. 
